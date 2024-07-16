@@ -12,7 +12,7 @@
 - Rachel
 - Owen
 - Maddie
-- Julia
+- Felipe
 
 ## Roles
 ***Coming Soon***
