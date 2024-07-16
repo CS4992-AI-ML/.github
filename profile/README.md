@@ -8,7 +8,7 @@
 - Maggie
 - Spencer
 - Harrison
-- Sophia
+- Diane
 - Rachel
 - Owen
 - Maddie
